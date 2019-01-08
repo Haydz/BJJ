@@ -1,16 +1,16 @@
-### Lions MMA
+#### Lions MMA
 
 VANCOUVER, BC
 
 http://www.lionsmma.ca/
 
 
-### MTC Windsor 
+#### MTC Windsor 
 
 WINDSOR, ON
 http://mtcwindsor.ca/
 
-### BORA BJJ INC
+#### BORA BJJ INC
 
 HAMILTON, ON
 https://www.borabjj.com/
