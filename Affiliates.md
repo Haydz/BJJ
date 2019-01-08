@@ -9,3 +9,8 @@ http://www.lionsmma.ca/
 
 WINDSOR, ON
 http://mtcwindsor.ca/
+
+### BORA BJJ INC
+
+HAMILTON, ON
+https://www.borabjj.com/
