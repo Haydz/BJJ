@@ -31,7 +31,7 @@ https://www.borabjj.com/
 
 #### Huron County BJJ
 
-Huron Country, ON
+Huron County, ON
 
 https://www.huronbjj.com/
 
